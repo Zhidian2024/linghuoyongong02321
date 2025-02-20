@@ -21,7 +21,8 @@ Java+Mysql
 ![10](https://github.com/user-attachments/assets/3d53489e-5528-4670-a94b-81cc339b5f8a)
 ![11](https://github.com/user-attachments/assets/1f9ff039-6272-44ba-80ad-d110c784bdf2)
 ![12](https://github.com/user-attachments/assets/a2dc58b8-a3b4-4819-889a-b33c8c887349)
-![xiaomage](https://github.com/user-attachments/assets/0a11adf9-ebfa-4880-a5c6-878a9ba99e2b)
+![lianxi](https://github.com/user-attachments/assets/70ecab38-a966-413b-acc4-8f7192798617)
+
 
 
 
